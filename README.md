@@ -1,4 +1,5 @@
-![Snapchat-1146700796](https://github.com/user-attachments/assets/069a84dc-6479-4333-a54c-8e3911b9b934)
+![WhatsApp Image 2023-03-03 at 15 34 176](https://github.com/user-attachments/assets/fa006c80-6979-4305-85ba-97da4679fbf3)
+
 <h1 align="center">Hi 👋, I'm Adithyan</h1>
 <h3 align="center">Student at Dayananda Sagar Academy Of Technology And Management</h3>
 
